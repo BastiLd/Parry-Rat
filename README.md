@@ -1,1 +1,1 @@
-https://bastild.github.io/Parry-Rat/
+https://bastild.github.io/Perry-Rat/
